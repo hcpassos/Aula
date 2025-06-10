@@ -11,4 +11,4 @@ Aula e explicações básicas
 
 Não gostei, por favor, melhore.
 
-Está ótimo, revise melhor.
+Já alterei tudo que devia.
